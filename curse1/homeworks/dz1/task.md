@@ -1,0 +1,1 @@
+https://github.com/ig1222-wq/git-notice
